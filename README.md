@@ -1,1 +1,1 @@
-# stem-afterschool
+# stem-afterschool  The product i am selling is clothes including jackets, shoes, for the name i would call it Luvana, My product is unique from others because it has special details that show fashion and it would suit on anybody, even with lack of comfort it would still fit the person.
